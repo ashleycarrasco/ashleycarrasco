@@ -1,6 +1,6 @@
 <h1 align="center">Hi! I'm Ashley 👩🏻‍💻</h1>
 
-- 💌 Email: ac2331@scarletmail.rutgers.edu
+- 💌 Email: ac2331@scarletmail.rutgers.edu or ashleyccarrasco@gmail.com
 
 - 🎀 Fun fact: I'm learning Portuguese!
 
